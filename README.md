@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Iduedu
+- 👀 I’m interested in aleatories things
+- 🌱 I’m currently learning english(i am Brazilian)
+- 💞️ I’m looking to collaborate on apps
